@@ -1,0 +1,2 @@
+# Yared
+Make money
